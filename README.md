@@ -19,6 +19,14 @@
 
 [看美劇學英文-親子篇](https://www.youtube.com/watch?v=g-omqpIsmi4)  
 
+[十大英語口語錯誤 戒掉台式英文 第一集](https://www.youtube.com/watch?v=X-3wUdkbnJo)  
+
+[看美劇學英文(出外篇)](https://www.youtube.com/watch?v=wWwq3QvRF-g)  
+
+[看美劇學英文(成語篇)](https://www.youtube.com/watch?v=JoOrFK966VA)  
+
+
+
 
 
 
