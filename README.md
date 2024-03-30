@@ -1,5 +1,6 @@
 # English-learning
-[1. 必學美劇最實用日常30短句 情境短片+逐字帶你學會唸](https://www.youtube.com/watch?v=XrdIpGW1RMs&t=338s)     
+[1. 必學美劇最實用日常30短句 情境短片+逐字帶你學會唸](https://www.youtube.com/watch?v=XrdIpGW1RMs&t=338s)    
+
 [2. 看美劇學英文 必學日常口語30句 第二集](https://www.youtube.com/watch?v=QcMBL536Fe0&t=3s)  
 
 [3. 看美劇學英文 必學日常口語30句 第三集](https://www.youtube.com/watch?v=n6s_VTCF_Jo)  
