@@ -7,6 +7,8 @@
 
 [看美劇學英文 必學日常口語30句第四集](https://www.youtube.com/watch?v=50KA9r51NHA)   
 
+[看美劇學英文日常必學口語20句 第六集](https://www.youtube.com/watch?v=h_W_nh-eLV4)  
+
 [看美劇學英文 必學美劇日常極短18句 現學現用](https://www.youtube.com/watch?v=ozDYoBVymkc)  
 
 [看美劇學英文 交友篇](https://www.youtube.com/watch?v=H8WD0CcYwS8)  
@@ -19,11 +21,23 @@
 
 [看美劇學英文-親子篇](https://www.youtube.com/watch?v=g-omqpIsmi4)  
 
+[看美劇學英文 教室篇](https://www.youtube.com/watch?v=kTiabyzqb2E)  
+
 [十大英語口語錯誤 戒掉台式英文 第一集](https://www.youtube.com/watch?v=X-3wUdkbnJo)  
 
 [看美劇學英文(出外篇)](https://www.youtube.com/watch?v=wWwq3QvRF-g)  
 
-[看美劇學英文(成語篇)](https://www.youtube.com/watch?v=JoOrFK966VA)  
+[看美劇學英文(成語篇)](https://www.youtube.com/watch?v=JoOrFK966VA) 
+
+[看美劇學英文 成語篇2](https://www.youtube.com/watch?v=iP0EeaQaa-E)  
+
+[看美劇學英文 必學日常口語20句 有了它 口說自己練](https://www.youtube.com/watch?v=g_BWNT4tRY0)  
+
+[看美劇學英文 霸氣英文短句 這樣說最cool!](https://www.youtube.com/watch?v=Yruv5FIzPI8)   
+
+
+
+
 
 
 
