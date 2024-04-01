@@ -47,14 +47,3 @@
 
 [24. 看美劇學英文 霸氣英文短句 這樣說最cool!](https://www.youtube.com/watch?v=Yruv5FIzPI8&t=103s)  
 
-[25. 
- 
-
-
-
-
-
-
-
-
-
