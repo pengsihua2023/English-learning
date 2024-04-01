@@ -5,7 +5,7 @@
 
 [3. 看美劇學英文 必學日常口語30句 第三集](https://www.youtube.com/watch?v=n6s_VTCF_Jo)  
 
-[4. 看美劇學英文 必學日常口語30句第四集](https://www.youtube.com/watch?v=50KA9r51NHA)   
+[4. 看美劇學英文 必學日常口語30句 第四集](https://www.youtube.com/watch?v=50KA9r51NHA)   
 
 [5. 看美劇學英文日常必學口語20句 第六集](https://www.youtube.com/watch?v=h_W_nh-eLV4)  
 
@@ -37,7 +37,18 @@
 
 [19. 看美劇學英文 成語篇 第三集 用Chat gpt 學典故](https://www.youtube.com/watch?v=3SZq3_z9mJQ)  
 
+[20. 看美劇學英文 必學日常口語20句 有了它 口說自己練](https://www.youtube.com/watch?v=g_BWNT4tRY0&t=89s)  
 
+[21.必學美劇最實用日常30短句 情境短片+逐字帶你學會唸](https://www.youtube.com/watch?v=XrdIpGW1RMs)  
+
+[22. 看美劇學英文 必學美劇日常極短18句 現學現用](https://www.youtube.com/watch?v=ozDYoBVymkc&t=71s)  
+
+[23. 看美劇學英文 霸氣英文短句 這樣說最cool!](https://www.youtube.com/watch?v=Yruv5FIzPI8&t=103s)  
+
+[24. 看美劇學英文 霸氣英文短句 這樣說最cool!](https://www.youtube.com/watch?v=Yruv5FIzPI8&t=103s)  
+
+[25. 
+ 
 
 
 
