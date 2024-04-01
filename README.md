@@ -35,6 +35,8 @@
 
 [18. 看美劇學英文 霸氣英文短句 這樣說最cool!](https://www.youtube.com/watch?v=Yruv5FIzPI8)   
 
+[19. 看美劇學英文 成語篇 第三集 用Chat gpt 學典故](https://www.youtube.com/watch?v=3SZq3_z9mJQ)  
+
 
 
 
